@@ -1,4 +1,4 @@
-** Deo selbst machen**   (Flo)
+**Deo selbst machen**   (Flo)
 * Aufwand: 5 Min.
 * Utensilien: Leerer Deoroller, Natron, Speisestärke, Wasser
 * Vorgehen:
