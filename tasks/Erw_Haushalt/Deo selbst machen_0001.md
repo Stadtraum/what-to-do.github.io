@@ -8,4 +8,3 @@
   1. Beim Abkühlen 1-2 Teelöffel Natron hinzugeben und verrühren
   1. nach Bedarf noch wenige Tropfen ätherische Öle hinzugeben
   1. In den leeren Deoroller füllen
-
